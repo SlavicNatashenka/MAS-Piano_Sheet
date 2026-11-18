@@ -4,4 +4,4 @@ PIANO SHEET SUBMOD °❀.ೃ࿔*
 
 ts just a submod where it shows you what notes to play ;-;
 
-REDISTRIBUTION, REPOSTING, MODIFICATION, MONETIZATION, OR DONATION-LINKED RE-USE OF THIS IS STRICTLY PROHIBITED WITHOUT PERMISSION. THANK YOU.
+Redistribution, reposting, modification, monetization, or donation-linked re-use of this is strictly prohibited without permission. Thank you!( ˶˘ ³˘)♡
